@@ -71,6 +71,6 @@ Download ONLY from the official source:
 
 🌟 Website Logo (Reference)
 
-(Logo retrieved from website source link you provided)
+
 
 [ JamalEditz Official Logo ]
